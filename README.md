@@ -1,8 +1,5 @@
 ### Hi there, I'm [Star Powder](https://lolsdsdsdsdsdsd.xyz/) 👋
 
-<br />
-<br />
-
 - 🔭 I’m currently working on [SOON](https://soon.com)
 - 💬 Ask me about anything on my DM [Star Powder#0001](https://soon.com/support)
 
